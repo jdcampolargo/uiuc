@@ -1,0 +1,1 @@
+This folder contains hi-res scans of the eye-catching covers of "The Cybernetician," the student-produced series that culminated with Cybernetics of Cybernetics. Resolution is high enough to print at 2x size (17x22) for posters.
